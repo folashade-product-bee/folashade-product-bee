@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @folashade-product-bee
 - 👀 I’m interested in product management 
-- 🌱 I’m currently learning product management 
 - 💞️ I’m looking to collaborate on product.
 - 📫 How to reach me via adebiyifolashademary@gmail.com
 
